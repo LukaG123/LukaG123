@@ -1,2 +1,4 @@
+![a407180a-3ab4-4d4c-9848-40b4a7d19acb](https://user-images.githubusercontent.com/112539194/187746654-ceb26a5f-b35a-474f-a139-6f723cc89298.jpg)
+
 Im Luka Goff,
 I like to play video games, sports, travel, I speak 3 lagauges, play the saxaphone, and figet with technology. I like to play football and basketball. I've lived in Thialand and now Jordan. I visist serbia and croatia because I have family there. The three langauges i speak are serbian, croation and of course english and im learning arabic and spanish too. I like technology in genoroll. I wanted to build a Pc for gaming so i had to learn all the parts and how they functioned and once I learned that my mind was blown away how expensive all the parts were so I saved all of that for later. I have played the saxaphone for 4-5 years now and have participated in many concerts and solo avents.
